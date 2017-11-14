@@ -1,2 +1,2 @@
-# TechContractsCom-ITMA-CmA
-Starting from 2017-11-12 version
+# TechContracts-ITMA-CmA
+Information Technology Master Agreement - from TechContracts.com - Use with a Lawyer - Not Legal Advice
